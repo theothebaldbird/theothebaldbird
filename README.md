@@ -4,3 +4,14 @@
   </a>
 </p>
 <div align="center"> 
+ <p align="center"> 
+  ᨳㅤ
+<a href="https://github.com/piehiker">princezam
+</a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://github.com/VlXXEN">planetlord
+</a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://github.com/yvoisen">clownpierce
+</a>
+ㅤ𖹭
